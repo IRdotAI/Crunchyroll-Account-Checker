@@ -51,3 +51,5 @@ If you want to contribute in this project then fork the repo and commit your cha
 I'm not responsible for anyone downloading cracked accouts list and using this tool. Of course, This whole process is **ILLEGAL**.
 
 If you really love anime and could afford it legally by paying to Crunchyroll, then you should do that.
+
+## By Yours Truely -AbrasiveTax49
